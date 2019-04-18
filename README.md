@@ -10,4 +10,4 @@
 ### * Harmanjeet Singh Sadiura 1895605
 
 ## Avatar
-![Image not found](http://www.gstatic.com/tv/thumb/persons/673351/673351_v9_ba.jpg)
+![Image not found](https://cdn.calciomercato.com/images/2018-10/ronaldo.juve.sorriso.2018.191.356x237.jpg)
