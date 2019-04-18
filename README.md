@@ -1,7 +1,7 @@
 # Table of Contents
 ## [Legends Team](#Legends-Team)
 ## [Avatar](#Avatar)
-## Meaning
+## [Meaning](#Meaning)
 
 ## Legends Team
 ### * Arshpreet Singh 1896249
@@ -14,6 +14,13 @@
 ### * ![Image not found](https://pbs.twimg.com/profile_images/855363929626869760/g1J23quV.jpg)
 ### * ![Image not found](https://timesofindia.indiatimes.com/photo/63924177.cms)
 ### * ![Image not found](https://i.eurosport.com/2018/12/07/2477900-51456710-2560-1440.jpg?w=1050)
-      
+  
+## Meaning
+#### * Code,Eat,Sleep.Repeat
+#### * Choose to be optimistic. It feels better.
+#### * Only I can change my life.
+#### * Work hard party harder
+
+
       
       
