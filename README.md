@@ -16,10 +16,10 @@
 ### * ![Image not found](https://i.eurosport.com/2018/12/07/2477900-51456710-2560-1440.jpg?w=1050)
   
 ## Meaning
-#### * Code,Eat,Sleep.Repeat
+#### * Code,Eat,Sleep.Repeat.
 #### * Choose to be optimistic. It feels better.
 #### * Only I can change my life.
-#### * Work hard party harder
+#### * Work hard party harder.
 
 
       
