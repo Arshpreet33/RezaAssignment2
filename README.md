@@ -1,7 +1,7 @@
 # Table of Contents
-## [Legends Team](#Legends-Team)
-## [Avatar](#Avatar)
-## Markup:[Meaning](#Meaning "Goto Meaning")
+## [Legends Team](# Legends-Team)
+## [Avatar](# Avatar)
+## Markup : [Meaning](#Meaning "Goto Meaning")
 
 
 
