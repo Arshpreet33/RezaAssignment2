@@ -1,7 +1,7 @@
 # Table of Contents
 ## [Legends Team](#Legends-Team)
 ## [Avatar](#Avatar)
-## [Meaning](#Meaning)
+## [Meaning](#Meaning)"Goto Meaning"
 
 ## Legends Team
 ### * Arshpreet Singh 1896249
