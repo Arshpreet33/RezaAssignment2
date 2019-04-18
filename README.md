@@ -1,2 +1,4 @@
 # Table of Contents
-(#Legends-Team)
+## Legends Team
+## Avatar
+## Meaning
